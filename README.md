@@ -1,0 +1,2 @@
+# -O-potencial-da-luz-como-transmissor-de-dados-em-sistemas-informatizados-de-comunica-o-
+Os objetivos aqui pretendidos são, na primeira ocasião mostrar o alto potencial da luz como fator de desenvolvimento tecnológico, e mostrar possíveis aplicações, principalmente nas áreas que integram os Sistemas de Informação e Comunicação, visando com isso novas maneiras de fazer comunicações mais seguras, versáteis e econômicas.
